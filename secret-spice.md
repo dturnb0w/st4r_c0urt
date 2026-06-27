@@ -14,12 +14,8 @@ Ratio matters more than quantity. 12:4:1 by weight.
 
 ## The trade
 
-Robin sorted me out so I stop paying full price like a ... . There is a code for it.
-Do not tell anyone, she will get in trouble.
-
-    trade code: SA-STAFF-P4573_7H15_47_7H3_C0UN73R_F0R_Y0UR_71CK37-EE66DAA624D62A57
-
-Works at the counter. Do not use it twice in one day, apparently that flags something.
+Took the code out. Robin pointed out that putting it somewhere public was a bad move
+on my part and she is right. Ask her in person.
 
 ## Rules
 - Do not tell the Cinnabon people I reverse engineered the blend
