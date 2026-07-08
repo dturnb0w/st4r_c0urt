@@ -15,3 +15,10 @@
 | Sam Goody (again) | 2 | Listed twice because I am there twice as often |
 | The Wok | 1 | Food court. Fine. Not pie |
 | Cinnabon | 1 | Dangerous. Smell reaches the parking lot |
+
+## Notes on me, apparently
+
+Robin says I am "aggressively specific about pie" and that I should hear how I
+sound. I have heard how I sound. I maintain that I am correct.
+
+Also I have been told I "loiter with intent". I am simply eating.
