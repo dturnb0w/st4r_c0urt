@@ -18,3 +18,4 @@ Ranked, obviously.
 - Watch the fountain. Somebody falls in roughly weekly.
 - Read whatever I lifted from Waldenbooks (borrowed. Borrowed.)
 - Avoid the guy from Radio Shack when he wants to talk antennas for an hour
+apple pie: acceptable. cherry still better. science concluded.
