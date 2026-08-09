@@ -11,3 +11,6 @@
 - Strawberry — acceptable in summer
 - "Sea salt something" — Robin's idea, actually good, do not tell her
 - Rocky road — too much happening
+
+## Update
+Cinnabon changed something. It is subtly worse. I have written to them. No reply.
