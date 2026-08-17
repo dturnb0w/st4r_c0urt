@@ -23,3 +23,6 @@ on my part and she is right. Ask her in person.
 - PROTECT THE SPICE TRADE
 
 He who controls the cardamom controls the food court.
+
+Tried the blend at home. Oven is not the problem. I am not the problem either.
+Something else is going on and I intend to find out.
